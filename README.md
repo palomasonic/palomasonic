@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @palomasonic busquenme en roblox 
+- 👀 I’m interested in ...games
+- 🌱 I’m currently learning ...books
+- 💞️ I’m looking to collaborate on ...Aquino
+- 📫 How to reach me ...
+- 😄 Pronouns: ...tuve cuentas de roblox desde 2016
+- ⚡ Fun fact: ...
+- Soy latino ahuevo
